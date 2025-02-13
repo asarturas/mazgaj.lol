@@ -1,1 +1,1 @@
-Go away.
+Come in, have a seat.
